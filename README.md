@@ -1,0 +1,2 @@
+# yvondetchenou-outlook.fr
+partner
